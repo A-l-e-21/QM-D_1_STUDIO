@@ -1,3 +1,3 @@
 Alessandro
 MacBook Pro di Alessandro 
-domenica 2 luglio 2017  19:53:56 Ora legale dell’Europa centrale
+lunedì 3 luglio 2017  17:31:19 Ora legale dell’Europa centrale
